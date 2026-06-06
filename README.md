@@ -12,7 +12,7 @@ $\large\textcolor{#537f8e}{\textsf{𝜗𝒞 ㅤ𝐄van ㅤ 𝐇e / 𝒉imㅤ✦ 
  ㅤ ⋯⋅⋯⋅⋯⋅⋯✦
 
  <p align="center">
-$\large\textcolor{#1c6e89}{\textsf{17 𝗒.ⱺㅤ╰୧﹒ㅤ♡ ㅤ𝐄s𝕗𝗉ㅤ〢ㅤ𝕊x2 }}$
+$\large\textcolor{#1c6e89}{\textsf{16 𝗒.ⱺㅤ╰୧﹒ㅤ♡ ㅤ𝐄s𝕗𝗉ㅤ〢ㅤ𝕊x2 }}$
 
 <p align="center">
  ✦⋅⋯ $\large\textcolor{#0e3e6b}{\textsf{"You'll change your name, or change your mind
