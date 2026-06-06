@@ -7,4 +7,4 @@
 $\large\textcolor{#6e8c86}{\textsf{𝜗𝒞 ㅤ𝐄van ㅤ 𝐇e / 𝒉imㅤ✦ ㅤ::  ㅤ 𝐂 +  𝐇 }}$
 
 <p align="center">
-  ✦⋅⋅⋯⋯⋅⋯⋅⋯ㅤ<a href="https://imaymadness2012.atabook.org//"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=30&duration=1&pause=5000&color=6e8c86&center=true&vCenter=true&width=200&height=20&lines=Atabook!!" alt="Typing SVG" /></a> ㅤㅤ ㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ⋯⋅⋯⋅⋯⋅⋯✦
+  ✦⋅⋅⋯⋯⋅⋯⋅⋯ㅤ<a href="https://imaymadness2012.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=30&duration=1&pause=5000&color=6e8c86&center=true&vCenter=true&width=200&height=20&lines=Atabook!!" alt="Typing SVG" /></a> ㅤㅤ ㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ⋯⋅⋯⋅⋯⋅⋯✦
